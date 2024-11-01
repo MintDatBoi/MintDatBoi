@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @MintDatBoi
+- 👀 I’m interested in ROBLOX Games such as DOORS, Flood Escape 2 (FE2), Piggy, and more!
+- 🌱 I’m currently learning Lua so I can make ROBLOX games.
+- 💞️ I’m looking to collaborate on ROBLOX games.
+- 📫 How to reach me: Send me an email!
+- 😄 Pronouns: He/Him.
+- ⚡ Fun fact: I make Flood Escape 2 maps.
